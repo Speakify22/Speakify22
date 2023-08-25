@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Speakify22
+- 👀 I’m interested in digital marketing, anime, SEO Content Writing, movies, music, history, and books.
+- 🌱 I’m currently learning how to smoothen my ways in the SEO world.
+- 💞️ I’m looking to collaborate on any topics and projects.
+- 📫 How to reach me is through my personal email poeticbasterd22@gmail.com
